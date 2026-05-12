@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with rare MathType for PC | MathType for Windows Automation | statistical-analysis + optimization, the #1 automation. Includes
 
 
 
